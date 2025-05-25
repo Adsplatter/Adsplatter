@@ -9,9 +9,8 @@ Visit [https://adsplatter.com](https://adsplatter.com) to check your eligibility
 
 With Adsplatter, you can **create paid campaigns** to promote your project, product, or company — or **earn money by displaying ads** from others.
 
-It's a win-win!
-
-Just sign up and start earning today!
+It's a win-win — just sign up and start earning today.
+It takes less than five minutes!
 
 #### Visit the website
 
